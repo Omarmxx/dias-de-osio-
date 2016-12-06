@@ -1,1 +1,0 @@
-# dias-de-osio-
